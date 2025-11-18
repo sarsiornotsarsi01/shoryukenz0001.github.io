@@ -1,0 +1,1 @@
+# shoryukenz0001.github.io
